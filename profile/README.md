@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://elesoftware.com/wp-content/uploads/2025/01/IObit-Driver-Booster-Pro.jpg" alt="IObit Driver Booster Logo"/>
+  <img src="https://thesoftware.shop/wp-content/uploads/2022/10/IObit-Driver-Booster-Pro-Review-Download-Discount-Coupon-Key-Giveaway.png" alt="IObit Driver Booster Logo"/>
 </div>
 
 <div align="center">
